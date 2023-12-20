@@ -8,3 +8,4 @@
 
 
 [![bf245eb8-e70d-48db-b3db-0ef717f893d2.jpeg](..%2F..%2FDownloads%2Fbf245eb8-e70d-48db-b3db-0ef717f893d2.jpeg)]
+ # И мой тг @azamat_blimgotov
